@@ -1,2 +1,2 @@
 # CV
-My latest CV
+My Curriculum Vitae
